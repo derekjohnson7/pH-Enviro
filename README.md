@@ -28,4 +28,17 @@ At pH Enviro Tech, we stand out as your trusted partner in hazardous materials m
 Proudly serving the Dallas-Fort Worth area, pH Enviro Tech’s mission is to provide comprehensive hazardous materials management and environmental testing services. We understand that dealing with hazardous materials can be daunting, which is why we strive to make the process as seamless and transparent as possible. Our goal is to empower homeowners and businesses to handle hazardous materials confidently and reliably.
 ### *Our Offerings*
 We specialize in a wide range of services for both residential and commercial clients:
+- Asbestos Testing and Remediation
+     - Safe identification and removal of asbestos-containing materials.
+- Lead Testing and Remediation
+     - Thorough lead assessments and effective remediation strategies.
+- Mold Testing and Remediation
+     - Identification and elimination of mold growth for a healthy indoor environment.
+- Environmental Consulting
+     - Tailored consulting services to help you understand and comply with environmental regulations.
+- Power Washing
+     - Advanced power washing techniques to restore the appearance of various surfaces.
+### *Get in Touch*
+We invite you to reach out to us to learn more about our services or to schedule a personalized consultation. Contact us today!
+
 

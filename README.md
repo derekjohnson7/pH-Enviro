@@ -5,8 +5,8 @@ Welcome to pH Enviro Tech! We are dedicated to providing top-notch hazardous mat
 
 ### *Mold Testing and Remediation*
 Our mold testing and remediation services help you identify, assess, and eliminate mold growth to maintain a healthy indoor environment.
-- Inspections and Assessments
- - Expert mold detection and analysis using advanced air and surface sampling techniques.
+- Inspections and Assessment
+     - Expert mold detection and analysis using advanced air and surface sampling techniques.
  - Mandatory when visible mold growth meets or exceeds 25 contiguous square feet.
 - Protocols
  - Customized mold remediation strategies for homes and businesses, ensuring thorough and safe remediation.

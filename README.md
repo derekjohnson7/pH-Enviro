@@ -20,4 +20,12 @@ We offer expert lead testing and remediation services to protect your property f
      - Comprehensive consulting on lead management strategies.
 - Gun Range Exposure Assessments
      - OSHA-mandated annual lead exposure monitoring, protecting employee health through rigorous workplace lead dust testing.
+### *Surface Cleaning*
+Our advanced power washing services restore the appearance of driveways, parking lots, homes, buildings, and job sites to a 'like new' condition.
+### *Why Choose Us?*
+At pH Enviro Tech, we stand out as your trusted partner in hazardous materials management and environmental testing. Our commitment to safety, compliance, and environmental protection drives us to deliver exceptional, tailored services. Whether you need help with lead, asbestos, mold, or other hazardous materials, our comprehensive solutions will help you navigate complex regulations with confidence.
+### *About Us*
+Proudly serving the Dallas-Fort Worth area, pH Enviro Tech’s mission is to provide comprehensive hazardous materials management and environmental testing services. We understand that dealing with hazardous materials can be daunting, which is why we strive to make the process as seamless and transparent as possible. Our goal is to empower homeowners and businesses to handle hazardous materials confidently and reliably.
+### *Our Offerings*
+We specialize in a wide range of services for both residential and commercial clients:
 
